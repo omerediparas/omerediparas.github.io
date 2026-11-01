@@ -1,1 +1,0 @@
-# omerediparas.github.io
